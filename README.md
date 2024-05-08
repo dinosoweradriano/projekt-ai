@@ -1,0 +1,2 @@
+# projekt-ai
+ADRIAN TANSKI
